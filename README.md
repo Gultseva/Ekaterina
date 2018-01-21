@@ -16,7 +16,7 @@
 ## Интересы
 ## Стихи
 Бла-бла
-(https://vk.com/away.php?to=https%3A%2F%2Fstihi.ru%2Favtor%2Fgultsevak&post=153646219_2632&cc_key= "страница")
+ккк[rrr](https://vk.com/away.php?to=https%3A%2F%2Fstihi.ru%2Favtor%2Fgultsevak&post=153646219_2632&cc_key= "страница")
 
 > В каждой бессмыслице столько смысла,сколько в ней найдёшь.
 
